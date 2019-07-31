@@ -1,2 +1,2 @@
 # Licenta
-jrtghvb
+Licenta vietii
